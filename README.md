@@ -2,7 +2,7 @@
 - 👀 I’m interested in photography
 - 🌱 I’m currently learning Bachelor of Science in Entrepreneurship
 - 💞️ I’m looking to collaborate on business planning and strategic planning. Photography as well!
-- 📫 How to reach me on IG @majellax
+- 📫 How to reach me: You can send a DM on IG @majellax
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I like dogs, photography and baking. I also collect Vinyl Records and Toys.
 
